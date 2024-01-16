@@ -1,6 +1,8 @@
 O site fala sobre Irina Blok criadora dos Dandrois.
 
-![irina-blok-pq](https://github.com/Adriana-Carvalho45/adriana-android/assets/155341374/fbd6d386-6fc4-486a-8953-6e487ad33abe
+![irina-blok-pq](https://github.com/Adriana-Carvalho45/adriana-android/assets/155341374/94d3cc46-6de9-431f-880c-72b25cd5f09e)
 
-![dan-droids-pq](https://github.com/Adriana-Carvalho45/adriana-android/assets/155341374/17c3be41-2ff6-45aa-bdf1-385515ab3946)
+![dan-droids-pq](https://github.com/Adriana-Carvalho45/adriana-android/assets/155341374/21651627-1247-489d-85a6-91136428ebb2)
+
+
 
